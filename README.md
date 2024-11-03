@@ -1,0 +1,7 @@
+- 👋 我是 jie-bot
+- 👀 我的兴趣是唱、跳、rapper、篮球
+- 🌱 我正在学习计算机
+- 💞️ I’m looking to collaborate on ...
+- 📫 每晚8点，91.com看我直播
+- 😄 
+- ⚡
